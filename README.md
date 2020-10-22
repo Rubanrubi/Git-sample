@@ -1,2 +1,2 @@
 # Git-sample
-jfkkkjkjtr
+jfkkkjkj
